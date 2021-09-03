@@ -1,0 +1,2 @@
+# zorojuro
+belajar semua
